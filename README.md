@@ -4,4 +4,4 @@
 
 - - - Defense of your electronic information, business, and digitized property!
 
-Contacts: [mail](ops-secur1ty@protonmail.com)
+Contact mail: (ops-secur1ty@protonmail.com)
